@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @lizyuanyizhang
-- 👀 I’m interested in jazz dancing,and design
-- 🌱 I’m currently learning English and python or some easy coding 
-- 💞️ I’m looking to collaborate on ...(no idea right now...hhh)
+- 👀 I’m interested in hiphop dancing,and design
+- 🌱 I’m currently learning vibe coding 
 - 📫 How to reach me yuanyizhang@foxmail.com or wechat:Ich_bin_liz
 
 <!---
