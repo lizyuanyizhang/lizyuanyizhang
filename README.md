@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @lizyuanyizhang
 - 👀 I’m interested in hiphop dancing,and design
 - 🌱 I’m currently learning vibe coding 
-- 📫 How to reach me yuanyizhang@foxmail.com or wechat:Ich_bin_liz
+- 📫 How to reach me yuanyizhang2021@gmail.com or wechat:Ich_bin_liz
 
 <!---
 lizyuanyizhang/lizyuanyizhang is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
