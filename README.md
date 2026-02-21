@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @lizyuanyizhang
+- 👋 Hi, I’m @lizyuanyizhang，my page:https://lizyuanyizhang.github.io/my-portfolio/
 - 👀 I’m interested in hiphop dancing,and design
 - 🌱 I’m currently learning vibe coding 
 - 📫 How to reach me yuanyizhang2021@gmail.com or wechat:Ich_bin_liz
